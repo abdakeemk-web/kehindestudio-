@@ -1,2 +1,0 @@
-# kehindestudio-
-fursuit studio portfolio 
